@@ -1,4 +1,4 @@
-
+![Ryne Headshot](images/ryne-website-pic.png)
 ### Hi! I'm Ryne.
 
 Husband to one. Father to two. Brother to seven. Raised in Alaska. Currently in Utah.
