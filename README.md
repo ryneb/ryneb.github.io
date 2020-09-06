@@ -9,4 +9,6 @@ I spend my daytime using data to improve product and strategy at [Chatbooks](htt
 ### Where you can find me  
 [Email](mailto:hrbelliston@gmail.com)  
 [LinkedIn](https://www.linkedin.com/in/rynebelliston/)  
+[GoodReads](https://www.goodreads.com/ryneb)  
 [Spotify](https://open.spotify.com/user/harrybelli)
+
